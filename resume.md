@@ -3,9 +3,9 @@
 Mahasiswa Ilmu Komputer IPB
 
 
-_Jl Veteran III Tapos_<br>
-_+62 858-8476-9698_<br>
-_d.bayuadam13@gmail.com_<br>
+*Jl Veteran III Tapos*<br>
+*+62 858-8476-9698*<br>
+*d.bayuadam13@gmail.com*<br>
 
 
 ## Pendidikan
